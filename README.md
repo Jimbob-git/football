@@ -26,7 +26,7 @@ As far back as I can remember, my Father used to take me to Easter Road on Satur
 My father's business partner at the time, had a brother who although was based in Switzerland, would fly into Liverpool at the weekends and had a Director's box at Anfield.  My Father used to love these experiences and would often tell me the stories.
 </p>
 <p>
-So, it's not unusual really that these two clubs are now very close to me, especially as my Father passed away monay years ago now.
+So, it's not unusual really that these two clubs are now very close to me, especially as my Father passed away many years ago now.
 </p>
 <p>
 As for Borussia Dortmund, I have always enjoyed watching German football, and have grown over the years to love the way Borussia Dortmund play.  They attack from the word go and as a football fan, that is what I want to see.  Excitement, energy, passion and usually lots of goals.
